@@ -1,4 +1,4 @@
-
+smart pull lucky blocks Scripts offers the most advanced pull lucky blocks Script, with custom skins and unlimited stamina. Perfect for dominating
 
 
 
